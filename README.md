@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kingmissa
+- 👀 I’m interested in quality designs
+- 🌱 I’m currently learning UIUX
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me cirenaeus087@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: football
